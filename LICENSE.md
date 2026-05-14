@@ -1,4 +1,4 @@
-# 
+# Get the ultimate perpetual trading bot with AI-powered Trading Bot for perpetual trading bot | market-making & stop-loss. Featuring market-making and stop-loss, it's the best
 
 
 
